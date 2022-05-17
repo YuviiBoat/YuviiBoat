@@ -15,7 +15,7 @@ A N D D
  - Amazon Prime (6 Months)
  - Disney+ Hotstar (1 Year)
 
-### Extars:
+### Extras:
 
   - Handset Protection (1 Year)
   - Wynk Music Premium (Unlimited)
