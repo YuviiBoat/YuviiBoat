@@ -28,7 +28,7 @@ A N D D
  ---
 
 # Note
-  You Have to Join our Discord Server  by [Clicking Here]() .You have to do atleast 2 invites to those peoples who wamted this items so you will get the role of __Mission Accomplished__\
+  You Have to Join our Discord Server  by [Clicking Here]() .You have to do atleast 2 invites to those peoples who wamted this items so you will get the role of __Mission Completed__\
   Then create a ticket and give your gmail for creating an account to __YuviiBoat#6481__ (Owner of the server/Seller)\
   Then wait for 10 Minutes\
       (Wait max-mat 15-20 minutes.And Remeber that the __YuviiBoat#6481__ should be online.)
