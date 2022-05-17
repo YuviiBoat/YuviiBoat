@@ -45,9 +45,9 @@ You Can Follow Me On __[INSTAGRAM](https://www.instagram.com/yuvii.boat/)__
 
 ##  My Friends Discord Servers:
 
-####   Abhijit [Click Here To Join]()
-####   Vishal [Click Here To Join](https://discord.gg/xEKNHm2A8G)
-####   Anon [Click Here To Join](https://discord.gg/yQSGf9xx9n)
+####   Abhijit : [Click Here To Join]()
+####   Vishal : [Click Here To Join](https://discord.gg/xEKNHm2A8G)
+####   Anon : [Click Here To Join](https://discord.gg/yQSGf9xx9n)
 
 ---
 
