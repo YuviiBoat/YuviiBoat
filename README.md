@@ -81,5 +81,3 @@ You Can See My LAPTOP Specs and my Emulator Settings Here.
 ---
 
 ## Bye Guyz Have Fun <3
-
----
