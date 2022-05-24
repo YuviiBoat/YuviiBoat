@@ -63,6 +63,8 @@ You Can See My LAPTOP Specs and my Emulator Settings Here.
 
 - Headset - Boat Rockerz 450
 
+### Note - I always play Free Fire by sitting on my bed without mouse pad.
+
 ### Hope All This are Enough for You.
 
 ---
