@@ -1,58 +1,82 @@
 # Ohayo Guyz !
 
-### I am Yuvraj from India.
-
- ---
-
-A N D D
-
- ---
-
-### I am Selling:-
-
-#### Main Items:
-
- - Amazon Prime (6 Months)
- - Disney+ Hotstar (1 Year)
-
-### Extras:
-
-  - Handset Protection (1 Year)
-  - Wynk Music Premium (Unlimited)
-  - Netflix Standard (Unlimited)
-
-### In Just
- - ₹1899 (Indian Rupees)
- - $25 (US Dollars)
- 
- ---
-
-# Note
-  You Have to Join our Discord Server  by [Clicking Here](https://discord.com/invite/yTgCuyse4T) .You have to do atleast 2 invites to those peoples who wamted this items so you will get the role of __Mission Completed__\
-  Then create a ticket and give your gmail for creating an account to __YuviiBoat#6481__ (Owner of the server/Seller)\
-  Then wait for 10 Minutes\
-      (Wait max-max 15-20 minutes.And Remeber that the __YuviiBoat#6481__ should be online.)
- 
- ---
-
-### I Will Take Only valid redeem codes for giving your items because I don't have any Paypal or Paytm Account.
+Itz YuviiBoat ( Yuvraj ) a 13 year Old Kiddo\
+You Can See My LAPTOP Specs and my Emulator Settings Here.
 
 ---
 
-By The Time
-You Can Follow Me On __[INSTAGRAM](https://www.instagram.com/yuvii.boat/)__
+### Device Specifications :
 
+- Device name	- LAPTOP-GD4TLK00.
+- Processor -	11th Gen Intel(R) Core(TM) i5-1135G7 @ 2.40GHz   2.40 GHz.
+- Installed RAM	- 8.00 GB (7.65 GB usable).
+- Device ID	- P R i V A T E.
+- Product ID	- P R i V A T E.
+- System type	- 64-bit operating system, x64-based processor.
+- Pen and touch	- No pen or touch input is available for this display.
 
-##  My Friends Discord Servers:
+### Windows Specification :
 
-####   Anon : [Click Here To Join](https://discord.gg/yQSGf9xx9n)
-####   Abhijit : [Click Here To Join]()
-####   Vishal : [Click Here To Join](https://discord.gg/xEKNHm2A8G)
+- Edition	- Windows 11 Home Single Language
+- Version	- 21H2
+- Installed on	- ‎5/‎23/‎2022
+- OS build	- 22000.675
+- Experience	- Windows Feature Experience Pack 1000.22000.675.0
+(Note - I Uses Windows 10 Home Single Language before installing Windows 11 Home Single Language)
+
+### Support :
+
+- Manufacturer -	HP
+- HP Online Support Also Availabe on its [WEBSITE](https://support.hp.com/in-en)
+
+### Display Settings :
+
+- Display - 1920x1080 (Max)
+- Display Scale - 100%
+- Display Orientation - Landscape
+
+### Emulator With Settings :
+
+- Display Resolution - 1600x900
+- DPI - 1024 (Max)
+
+### In Game Settings :
+
+- General to Free Style Everything - 0%
+- All Buttons Size - 0%
+(Note - All Buttons are in their own place. Excluding : Joystick and Character Emote Buttons)
+
+### In Game Emulator Settings :
+
+- Tweaks - 2
+- X - 0.11
+- Y - 5.7
+
+### Hardwares :
+
+- Mouse - HP 150 Wired Mouse.
+- Mouse DPI - 1600 (Fixed)
+- Poll Rate - 1000 (Fixed)
+
+- Keyboard - Normal Keyboard (Not Gaming Keyboard)
+
+- Headset - Boat Rockerz 450
+
+### Hope All This are Enough for You.
 
 ---
 
-Say Bye To Me !!
+### You Can Check my PC on live at 100K Subscribers on YOUTUBE and 10K Followers on INSTAGRAM
 
------
+- Youtube - https://www.youtube.com/channel/UCiI1USCyOV1ivHFb2MyATwg
+- Instagram - https://www.instagram.com/yuvii.boat
 
-#FairSeller #YuviiBoat
+### Want to do 1v1 with me by Sharing Screen then Join Discord Server.
+
+- Discord - Link Soon (It Dosen't even exist now because I haven't created it yet 🤣)
+
+---
+
+## Bye Guyz Have Fun <3
+
+---
