@@ -72,7 +72,7 @@ You Can See My LAPTOP Specs and my Emulator Settings Here.
 ### You Can Check my PC on live at 100K Subscribers on YOUTUBE and 10K Followers on INSTAGRAM
 
 - Youtube - https://www.youtube.com/channel/UCiI1USCyOV1ivHFb2MyATwg
-- Instagram - https://www.instagram.com/yuvii.boat
+- Instagram - https://www.instagram.com/yuviiboat
 
 ### Want to do 1v1 with me by Sharing Screen then Join Discord Server.
 
