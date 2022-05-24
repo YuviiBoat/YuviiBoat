@@ -37,6 +37,7 @@ You Can See My LAPTOP Specs and my Emulator Settings Here.
 
 ### Emulator With Settings :
 
+- Emulator - [MSI 4.240](https://drive.google.com/file/d/1mbDHC2WFFohZECmb55Cc1Hb4ZrIjnc33/view?usp=sharing)
 - Display Resolution - 1600x900
 - DPI - 1024 (Max)
 
