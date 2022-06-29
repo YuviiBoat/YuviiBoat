@@ -1,9 +1,7 @@
 # Ohayo Guyz !
 
-Itz YuviiBoat ( Yuvraj ) a 13 year Old Kiddo\
-You Can See My LAPTOP Specs and my Emulator Settings Here.\
-And after reading this all my settings.\
-Don't You Dare to Call Me Hacker or Panel User 😈
+Itz YuviiBoat ( Yuvraj ) a 13 year Old Kid\
+You Can See My LAPTOP Specs.😈
 
 ---
 
@@ -26,57 +24,13 @@ Don't You Dare to Call Me Hacker or Panel User 😈
 - Experience	- Windows Feature Experience Pack 1000.22000.675.0
 (Note - I Uses Windows 10 Home Single Language before installing Windows 11 Home Single Language)
 
-### Support :
+### Just A Anime Fan Boeh
 
-- Manufacturer -	HP
-- HP Online Support Also Availabe on its [WEBSITE](https://support.hp.com/in-en)
+- [Youtube - YuviiBoat](https://www.youtube.com/channel/UCiI1USCyOV1ivHFb2MyATwg)
+- [Instagram - yuviiboat](https://www.instagram.com/yuviiboat)
+- [Twitter - YuviiBoat](https://twitter.com/YuviiBoat)
 
-### Display Settings :
-
-- Display - 1920x1080 (Max)
-- Display Scale - 100%
-- Display Orientation - Landscape
-
-### Emulator With Settings :
-
-- Emulator - [MSI 4.240](https://drive.google.com/file/d/1mbDHC2WFFohZECmb55Cc1Hb4ZrIjnc33/view?usp=sharing)
-- Display Resolution - 1600x900
-- DPI - 1024 (Max)
-
-### In Game Settings :
-
-- General to Free Style Everything - 0%
-- All Buttons Size - 0%
-(Note - All Buttons are in their own place. Excluding : Joystick and Character Emote Buttons)
-
-### In Game Emulator Settings :
-
-- Tweaks - 2
-- X - 0.11
-- Y - 5.7
-
-### Hardwares :
-
-- Mouse - HP 150 Wired Mouse.
-- Mouse DPI - 1600 (Fixed)
-- Poll Rate - 1000 (Fixed)
-
-- Keyboard - Normal Keyboard (Not Gaming Keyboard)
-
-- Headset - Boat Rockerz 450
-
-### Note - I always play Free Fire by sitting on my bed without mouse pad.
-
-### Hope All This are Enough for You.
-
----
-
-### You Can Check my PC on live at 100K Subscribers on YOUTUBE and 10K Followers on INSTAGRAM
-
-- [Youtube](https://www.youtube.com/channel/UCiI1USCyOV1ivHFb2MyATwg)
-- [Instagram](https://www.instagram.com/yuviiboat)
-
-### Want to do 1v1 with me by Sharing Screen then Join Discord Server.
+### Games & Photoshop Tutorials
 
 - Discord - Link Soon (It Dosen't even exist now because I haven't created it yet 🤣)
 
